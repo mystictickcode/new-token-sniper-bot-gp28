@@ -1,4 +1,4 @@
-# 
+# Get the ultimate new token sniper bot with professional new token sniper bot | gas-optimization + dex-sniping. Featuring gas-optimization and dex-sniping, it's the best choice for
 
 
 
